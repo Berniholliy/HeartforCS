@@ -8,4 +8,4 @@
 
 Password - 1213
 
-🐙 [Link](https://shorturl.at/ekoxY) 🐙
+🐙 [Link](https://shorturl.at/egFTU) 🐙
